@@ -1,1 +1,1 @@
-I have a bomb
+Glory to humanity 🇺🇳🇺🇳🇺🇳
