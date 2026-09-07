@@ -1,1 +1,1 @@
-Glory to humanity 🇺🇳🇺🇳🇺🇳
+Personal shenanigans, shenanigans Personal
